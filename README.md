@@ -1,0 +1,1 @@
+# Type-Ins from magazines
